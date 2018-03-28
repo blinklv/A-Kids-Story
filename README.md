@@ -6,7 +6,7 @@
 
 *There is some fiction in your truth,*     
 *and some truth in your fiction.*     
-*To the truth, you must risk everything.*    
+*To know the truth, you must risk everything.*    
 
 *Who are you?*      
 *Am I alone?*      
